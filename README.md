@@ -6,6 +6,8 @@ Claves para pedirle un favor:
 Ante el repo de San Judas Tadeo con la fe.
 Envia tus issues, y San Judas te escuchará.
 
+Cuando San Judas te haya concedido tu milagro, pasa al repo de agradecimientos y ponlo tu agradecimiento allí.
+
 Oración para el primer día.
 
 Oh fidelísimo Apóstol San Judas Tadeo, que dócil a los llamamientos de tu Divino Maestro, nuestro amadísimo Salvador supiste abandonarlo todo por seguirle; haz que a imitación tuya, sepamos seguir las inspiraciones de la gracia con que tantas veces nos llama nuestro buen Dios y no las resistamos en adelante, para no exponemos al peligro de ser abandonados en la terrible hora de la muerte. 
